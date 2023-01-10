@@ -1,0 +1,2 @@
+# Practica-Platzi
+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
